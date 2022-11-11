@@ -1,4 +1,4 @@
-![](https://media-exp1.licdn.com/dms/image/C4D16AQGUHf0EYCJvjg/profile-displaybackgroundimage-shrink_350_1400/0/1589971944711?e=1657756800&v=beta&t=Fdck0yx3cHY8Wh-4ISVdYGVQNG2YRd2xAde8gaSYAi4)
+![](https://usenotioncms.com/proxy/block/6c6a1595-bace-491e-b67b-4f277617bc97%2F59824b23-8b44-40bf-93dc-a253e553e2b2%2Fcoverpic.jpeg)
 
 # MyWays.ai
 
